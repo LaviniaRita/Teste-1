@@ -1,7 +1,7 @@
-# Teste-1  
-## Estudante Lavinia 
-##
-\[850^\circ\]
+# Teste-1A
+## Lavinia 
+## Estudante Lavinia Rita: heart_eyes:
+**Humanas**
 A afirmação é 
 
 
